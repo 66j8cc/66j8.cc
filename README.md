@@ -1,5 +1,5 @@
-# 汤姆影院 最新地址发布 
-## 导 航 永 久 域 名HttpS://avtom.vip
+# 66J8成人影院 最新地址发布 
+## 导 航 永 久 域 名HttpS://66j8.com
 ##⭐️👉访问地址：https://www.232tom.com
 ##⭐️👉备用导航：https://www.TMYY.TV
 ## ⭐️ 👉 备用导航 ：HttpS://TMYY.TV
