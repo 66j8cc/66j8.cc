@@ -1,8 +1,6 @@
 # 66J8成人影院 最新地址发布 
 ## 导 航 永 久 域 名HttpS://66j8.cc
 
-##⭐️👉访问地址：https://www.66j8.pw
-
 ##⭐️👉访问地址：https://www.66j8.live
 
 ##⭐️👉访问地址：https://www.66j8.site
